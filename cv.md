@@ -28,4 +28,4 @@ Email: [nevozmojke@gmail.com](nevozmojke@gmail.com)\
 Telegram: [@AndreySankovich](https://telegram.me/AndreySankovich)
 
 
-## See you in RS-School Buddy!
+## See you in RS-School, Buddy!
